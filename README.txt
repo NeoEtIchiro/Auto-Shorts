@@ -1,0 +1,1 @@
+Don't use it for publishing 18+ shorts automatically
